@@ -43,7 +43,7 @@
 
            
 <p align="center">
-   ${\textsf{\color{#b04e22}aesop or exor ✦ he / any}}$<br>
+   ${\textsf{\color{#b04e22}exor or med ✦ he / any}}$<br>
     ${\textsf{\color{#b04e22}whisper to int ✦ c+h in a dnt world .}}$ <br>
          ${\textsf{\color{#b04e22}best viewed on pc !}}$ <br>
 
@@ -54,7 +54,7 @@
  <br>
  
 <p align="center">
-   ${\textsf{\color{#b04e22}sign my ata ✦ feel free to interact}}$<br>
+   ${\textsf{\color{#b04e22}sign my ata ✦ feel free to interact !}}$<br>
     ${\textsf{\color{#b04e22}exorspace piratekit num1 fan ever}}$ <br>
     ${\textsf{\color{#b04e22}dojt kiss me i have a bf /ref}}$ <br>
  <br><br>
