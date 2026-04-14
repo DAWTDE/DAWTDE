@@ -23,10 +23,10 @@
 
 <div align="center">
    
- <img src="https://github.com/user-attachments/assets/2cc9bb9d-c9cd-46f1-868c-48bb4c7edfe7" width="950" height="auto" title="graphic is not mine!"></a>
+ <img src="https://i.postimg.cc/Dw8RXDbv/IMG-0427.png" width="950" height="auto" title="graphic is not mine!"></a>
 
   
-<img src="https://github.com/user-attachments/assets/2c4d868c-8599-44f7-ae60-d144bdd3cca9" align="right" width="55%" alt="hey guys" title="i drew this ! >_<"></a>
+<img src="https://i.postimg.cc/7ZddMVgG/IMG-0426.png" align="right" width="55%" alt="hey guys" title="i drew this ! >_<"></a>
 
 
   <br>  <br>  <br>  <br>
@@ -56,13 +56,12 @@
 <p align="center">
    ${\textsf{\color{#b04e22}sign my ata ✦ feel free to interact !}}$<br>
     ${\textsf{\color{#b04e22}exorspace piratekit num1 fan ever}}$ <br>
-    ${\textsf{\color{#b04e22}dojt kiss me i have a bf /ref}}$ <br>
  <br><br>
 
 
 <a href="https://medkit.atabook.org"> atabook</a> <a href="https://aesvic.straw.page">strawpage</a> <a href="https://rentry.co/victor-grantz">link directory</a> <a href="https://guns.lol/exorspace">guns.lol</a>
 
- <img src="https://github.com/user-attachments/assets/6c0aef84-4cec-494e-8735-60d75c1f0c72" width="950" height="auto" title="graphic is not mine!" ></a>
+ <img src="https://i.postimg.cc/T3FFq9ry/IMG-0428.png" width="950" height="auto" title="graphic is not mine!" ></a>
 
 
 </h5>
