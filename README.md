@@ -38,7 +38,7 @@
  <br>
 
 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=aesvic&color=b04e22&plastic&label=⠀EUPHORIA+;⠀"></img></p>
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=aesvic&color=e81c0e&plastic&label=⠀LIMBO+;⠀"></img></p>
  <br> 
 
            
@@ -50,7 +50,7 @@
  <br>
 
 <p align="center"> 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=PlRATEKIT&color=b04e22&plastic&label=⠀DISEASE+;⠀"></img></p>
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=PlRATEKIT&color=e81c0e&plastic&label=⠀LUST+;⠀"></img></p>
  <br>
  
 <p align="center">
