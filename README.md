@@ -32,9 +32,9 @@
   <br>  <br>  <br>  <br>
 
  <p align="center">     
- ${\textsf{\color{#a94920}@aesvic's alt, i spam follow !}}$ <br>
-   ${\textsf{\color{#a94920}if this bothers you, feel free to block .}}$ <br>
-   ${\textsf{\color{#a94920}i don't check profiles, don't dt me .}}$ <br></p>
+ ${\textsf{\color{#c91e12}@aesvic's alt, i spam follow !}}$ <br>
+   ${\textsf{\color{#c91e12}if this bothers you, feel free to block .}}$ <br>
+   ${\textsf{\color{#c91e12}i don't check profiles, don't dt me .}}$ <br></p>
  <br>
 
 
@@ -43,9 +43,9 @@
 
            
 <p align="center">
-   ${\textsf{\color{#b04e22}exor or med ✦ he / any}}$<br>
-    ${\textsf{\color{#b04e22}whisper to int ✦ c+h in a dnt world .}}$ <br>
-         ${\textsf{\color{#b04e22}best viewed on pc !}}$ <br>
+   ${\textsf{\color{#c91e12}exor or med ✦ he / any}}$<br>
+    ${\textsf{\color{#c91e12}whisper to int ✦ c+h in a dnt world .}}$ <br>
+         ${\textsf{\color{#c91e12}best viewed on pc !}}$ <br>
 
  <br>
 
@@ -54,8 +54,8 @@
  <br>
  
 <p align="center">
-   ${\textsf{\color{#b04e22}sign my ata ✦ feel free to interact !}}$<br>
-    ${\textsf{\color{#b04e22}exorspace piratekit num1 fan ever}}$ <br>
+   ${\textsf{\color{#c91e12}sign my ata ✦ feel free to interact !}}$<br>
+    ${\textsf{\color{#c91e12}exorspace piratekit num1 fan ever}}$ <br>
  <br><br>
 
 
