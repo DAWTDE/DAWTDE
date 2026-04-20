@@ -55,7 +55,7 @@
  
 <p align="center">
    ${\textsf{\color{#c91e12}sign my ata ✦ feel free to interact !}}$<br>
-    ${\textsf{\color{#c91e12}w2i at all times & c+h always enc !}}$ <br>
+    ${\textsf{\color{#c91e12}w2i at all times + c+h always enc !}}$ <br>
  <br><br>
 
 
