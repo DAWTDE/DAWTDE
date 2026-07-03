@@ -43,7 +43,7 @@
 
            
 <p align="center">
-   ${\textsf{\color{#f2c00c}exor or cho ✦ he / any}}$<br>
+   ${\textsf{\color{#f2c00c}exor ou verity ✦ he / any}}$<br>
     ${\textsf{\color{#f2c00c}whisper to int ✦ c+h in a dnt world .}}$ <br>
          ${\textsf{\color{#f2c00c}best viewed on pc !}}$ <br>
 
@@ -77,7 +77,7 @@
  <br>
 
  <p align="center">
-   ${\textsf{\color{#f2d30c}all art featured in this readme is mine!}}$<br>
+   ${\textsf{\color{#f2d30c}all art featured on this profile is mine!}}$<br>
     ${\textsf{\color{#f2d30c}the dividers are all simply recolored.}}$ <br>
  <br><br>
 
