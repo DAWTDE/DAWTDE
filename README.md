@@ -26,7 +26,7 @@
  <img src="https://i.postimg.cc/90Kht0wP/IMG-1566.png" width="950" height="200" title="graphic is not mine!"></a>
 
   
-<img src="https://file.garden/ZrgE6xyrrgxh47YJ/IMG_2813.png" align="right" width="40%" alt="hey guys" title="i drew this ! >_<"></a>
+<img src="https://file.garden/ZrgE6xyrrgxh47YJ/IMG_2813.png" align="right" width="50%" alt="hey guys" title="i drew this ! >_<"></a>
 
 
   <br>  <br>  <br>  <br>
