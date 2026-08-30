@@ -26,7 +26,7 @@
  <img src="https://i.postimg.cc/90Kht0wP/IMG-1566.png" width="950" height="200" title="graphic is not mine!"></a>
 
   
-<img src="https://file.garden/ZrgE6xyrrgxh47YJ/IMG_2813.png" align="right" width="48%" alt="hey guys" title="i drew this ! >_<"></a>
+<img src="https://file.garden/ZrgE6xyrrgxh47YJ/IMG_2813.png" align="right" width="35%" alt="hey guys" title="i drew this ! >_<"></a>
 
 
   <br>  <br>  <br>  <br>
@@ -78,7 +78,7 @@
 
  <p align="center">
    ${\textsf{\color{#f2d30c}all art featured on this profile is mine!}}$<br>
-    ${\textsf{\color{#f2d30c}the dividers are all simply recolored.}}$ <br>
+    ${\textsf{\color{#f2d30c}view on pc guys plzz plzzz}}$ <br>
  <br><br>
 
  <img src="https://i.postimg.cc/1X2QcXVv/IMG-1567.png" width="950" height="200" title="graphic is not mine!" ></a>
