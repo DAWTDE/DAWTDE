@@ -33,8 +33,8 @@
 
  <p align="center">     
  ${\textsf{\color{#f2960c}@aesvic's alt, i spam follow !}}$ <br>
-   ${\textsf{\color{#f2960c}if this bothers you, feel free to block .}}$ <br>
-   ${\textsf{\color{#f2960c}i don't check profiles, don't dt me .}}$ <br></p>
+   ${\textsf{\color{#f2960c}if this bothers you, for whatever reason LOL,}}$ <br>
+   ${\textsf{\color{#f2960c}feel free to block. i don't check profiles, don't dt me.}}$ <br></p>
  <br>
 
 
@@ -43,8 +43,8 @@
 
            
 <p align="center">
-   ${\textsf{\color{#f2c00c}exor ou verity ✦ he / any}}$<br>
-    ${\textsf{\color{#f2c00c}whisper to int ✦ c+h in a dnt world .}}$ <br>
+   ${\textsf{\color{#f2c00c}exor ou etc. ✦ he / any}}$<br>
+    ${\textsf{\color{#f2c00c}whisper to int ✦ c+h in a dnt world}}$ <br>
          ${\textsf{\color{#f2c00c}best viewed on pc !}}$ <br>
 
  <br>
@@ -72,7 +72,7 @@
  <p align="center">
    ${\textsf{\color{#f2c00c}phighting, bad things, and sikayd}}$<br>
     ${\textsf{\color{#f2c00c}community pref iwec.  No hate though}}$ <br>
-         ${\textsf{\color{#f2c00c}stop watering down characters to (x)dere tropes}}$ <br>
+    ${\textsf{\color{#f2c00c}check out my rentry(s) for more info !}}$ <br>
 
  <br>
 
