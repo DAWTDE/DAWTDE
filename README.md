@@ -26,7 +26,7 @@
  <img src="https://i.postimg.cc/90Kht0wP/IMG-1566.png" width="950" height="200" title="graphic is not mine!"></a>
 
   
-<img src="https://i.postimg.cc/XvqQ0RB5/IMG-1450.png" align="right" width="40%" alt="hey guys" title="i drew this ! >_<"></a>
+<img src="https://file.garden/ZrgE6xyrrgxh47YJ/IMG_2813.png" align="right" width="40%" alt="hey guys" title="i drew this ! >_<"></a>
 
 
   <br>  <br>  <br>  <br>
@@ -58,9 +58,9 @@
     ${\textsf{\color{#f2d30c}w2i at all times + c+h always enc !}}$ <br>
  <br><br>
 
-<img src= "https://i.postimg.cc/v8nbTVLX/IMG-1879.png" align="left" width="40%" alt="hey guys" title="i drew this ! >_<">
+<img src= "https://file.garden/ZrgE6xyrrgxh47YJ/IMG_2814.png" align="left" width="40%" alt="hey guys" title="i drew this ! >_<">
 
-<a href="https://rentry.co/thedarkIord"> <img src= "https://i.postimg.cc/BZrDngXK/IMG-1575.png" style="width: 7%; height: auto;"> </a>
+<a href="https://rentry.co/sunoftheria"> <img src= "https://i.postimg.cc/BZrDngXK/IMG-1575.png" style="width: 7%; height: auto;"> </a>
 <a href="https://medkit.atabook.org"> <img src="https://i.postimg.cc/sD5WQhh1/IMG-1576.png" style="width: 7%; height: auto;"> </a>
 <a href="https://rentry.co/shadow-peach"> <img src= "https://i.postimg.cc/zDsWGjVC/IMG-1577.png" style="width: 7%; height: auto;"> </a>
 
