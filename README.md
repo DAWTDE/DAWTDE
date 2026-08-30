@@ -58,7 +58,7 @@
     ${\textsf{\color{#f2d30c}w2i at all times + c+h always enc !}}$ <br>
  <br><br>
 
-<img src= "https://file.garden/ZrgE6xyrrgxh47YJ/IMG_2814.png" align="left" width="40%" alt="hey guys" title="i drew this ! >_<">
+<img src= "https://file.garden/ZrgE6xyrrgxh47YJ/IMG_2814.png" align="left" width="30%" alt="hey guys" title="i drew this ! >_<">
 
 <a href="https://rentry.co/sunoftheria"> <img src= "https://i.postimg.cc/BZrDngXK/IMG-1575.png" style="width: 7%; height: auto;"> </a>
 <a href="https://medkit.atabook.org"> <img src="https://i.postimg.cc/sD5WQhh1/IMG-1576.png" style="width: 7%; height: auto;"> </a>
